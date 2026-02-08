@@ -1,4 +1,4 @@
-![](https://view-counter.tobyhagan.com/?user={moxxarella}&base=ff0000&accent=3c3c3c&icon=true) 
+[](https://view-counter.tobyhagan.com/?user={moxxarella}&base=ff0000&accent=3c3c3c&icon=true) 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -6,7 +6,7 @@
   </a>
 </p>
 
-<p align="center"> ☣︎ ;; " 𝚋𝚎 𝚌𝚘𝚘𝚕, 𝚋𝚒𝚝𝚌𝚑, 𝚋𝚎 𝚌𝚘𝚘𝚕 ! "
+<p align="center"> ☣︎ ;; " 𝚋𝚎  𝚌𝚘𝚘𝚕 ,  𝚋𝚒𝚝𝚌𝚑 ,  𝚋𝚎  𝚌𝚘𝚘𝚕 ! "
 
 <p align="center"> <img width="650" height="650" alt="Untitled43_20260208172747" src="https://github.com/user-attachments/assets/fb6e9a20-cf0d-4809-884e-0a72ad614e49" />
 
