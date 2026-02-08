@@ -1,3 +1,5 @@
+![](https://view-counter.tobyhagan.com/?user={moxxarella}&base=ff0000&accent=3c3c3c&icon=true) 
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3164usndg2i5qto7ilxtu2ls7ddu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=374530&bar_color_cover=false">
