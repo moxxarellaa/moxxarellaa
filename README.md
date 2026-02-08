@@ -6,7 +6,7 @@
   </a>
 </p>
 
-working on this ok...?
+<p align="center"> working on this ok...?
 
 <p align="center"> <img width="650" height="650" alt="Untitled43_20260208172747" src="https://github.com/user-attachments/assets/fb6e9a20-cf0d-4809-884e-0a72ad614e49" />
 
