@@ -1,2 +1,5 @@
 <img src="https://komarev.com/ghpvc/?username=moxxarellaa&style=flat-square&color=blue" alt=""/>
 
+<img width="736" height="736" alt="Untitled43_20260208172747" src="https://github.com/user-attachments/assets/fb6e9a20-cf0d-4809-884e-0a72ad614e49" />
+
+<img width="250" height="141" alt="tumblr_c21fe41a6f7025933baab66399873c61_feb9a5e3_250" src="https://github.com/user-attachments/assets/875ac96f-5cb0-41ef-b938-5b240c515d4b" />    <img width="250" height="141" alt="tumblr_b981fd41294473b07fccd077f2e9b0bb_0ad22855_250" src="https://github.com/user-attachments/assets/ea906397-4cf1-411c-bcc4-78626f513083" />     <img width="250" height="141" alt="tumblr_4b1c2039cda4c6841fb61586ed49298f_a334e65f_250" src="https://github.com/user-attachments/assets/91fe67af-405b-4779-b20b-bc27f4aad4ea" />     
