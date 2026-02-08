@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=moxxarellaa&style=flat-square&color=blue" alt=""/>
+<p align="center"> ![](https://komarev.com/ghpvc/?username=moxxarellaa&color=green)
 
 
 
