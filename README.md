@@ -1,5 +1,5 @@
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=moxxarellaa)⠀ ⠀ ⠀ ⠀ ⠀   "⠀𝚑𝚎𝚢 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎 !⠀"
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=moxxarellaa)⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  "⠀𝚑𝚎𝚢 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎 !⠀"
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
