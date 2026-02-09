@@ -11,5 +11,7 @@
 
 <p align="center"> <img width="650" height="650" alt="Untitled43_20260208172747" src="https://github.com/user-attachments/assets/fb6e9a20-cf0d-4809-884e-0a72ad614e49" />
 
-<p align="center">  <img width="150" height="50" alt="image" src="https://github.com/user-attachments/assets/fb6220fe-4742-45a9-9421-0f8849fb324d" /> <img width="150" height="50" alt="image" src="https://github.com/user-attachments/assets/23cf8a97-2734-4aa3-9319-b0d23e439f0a" />
+<p align="center"> <img src="https://github.com/user-attachments/assets/60592759-0b4c-4b92-9437-2147475d78ca" alt="ok..." width="105" height="105">  
+<img src="https://github.com/user-attachments/assets/b54d7200-6a02-4fbb-a0d1-d99ca0ccb0d7" alt="hi..." width="105" height="105"> 
+<----- 𝚖𝚎 𝚘𝚔...?
 
