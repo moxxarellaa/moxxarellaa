@@ -1,17 +1,13 @@
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=moxxarellaa)⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  "⠀𝚑𝚎𝚢 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎 !⠀"
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=moxxarellaa)⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3164usndg2i5qto7ilxtu2ls7ddu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=374530&bar_color_cover=false">
-  </a>
-</p>
 
-<p align="center"> ☣︎ ;; " 𝚋𝚎  𝚌𝚘𝚘𝚕 ,  𝚋𝚒𝚝𝚌𝚑 ,  𝚋𝚎  𝚌𝚘𝚘𝚕 ! "
 
-<p align="center"> <img width="650" height="650" alt="Untitled43_20260208172747" src="https://github.com/user-attachments/assets/fb6e9a20-cf0d-4809-884e-0a72ad614e49" />
+<p align="center"> <img src="https://github.com/user-attachments/assets/1c0dc767-ce25-49f7-8b71-eedf642bf471" width="500" height="105"> 
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/60592759-0b4c-4b92-9437-2147475d78ca" alt="ok..." width="105" height="105">  
-<img src="https://github.com/user-attachments/assets/b54d7200-6a02-4fbb-a0d1-d99ca0ccb0d7" alt="hi..." width="105" height="105"> 
-<----- 𝚖𝚎 𝚘𝚔...?
+<p align="center"> <img width="450" height="480" alt="Untitled3_20260123075226" src="https://github.com/user-attachments/assets/c56e422c-0b52-429e-afe7-8e9942df2121" />
 
+<p align="center">   <img src="https://github.com/user-attachments/assets/33d6d26a-a112-4f85-ae1e-bd94825f74dc" alt="hi..." width="105" height="105"> 
+
+
+<p align="center">   <img src="https://github.com/user-attachments/assets/49516a19-9df0-4dcf-98ba-759727547657" alt="hi..." width="150" height="150"> <img src="https://github.com/user-attachments/assets/566b5bd7-9c51-448a-9c87-59c288927782" alt="hi..." width="150" height="150">
