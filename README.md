@@ -5,7 +5,9 @@
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/1c0dc767-ce25-49f7-8b71-eedf642bf471" width="500" height="105"> 
 
-<p align="center"> <img width="550" height="420" alt="Screenshot 2026-02-25 194705" src="https://github.com/user-attachments/assets/086ed2c7-8612-4d97-a328-9ffcf9bfa38f" />
+<p align="center"> ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+<p align="center"> <img src="https://github.com/user-attachments/assets/a2087eac-70f5-407a-9207-cd11900d6daf" width="450" height="500"> 
 
 <p align="center">   <img src="https://github.com/user-attachments/assets/33d6d26a-a112-4f85-ae1e-bd94825f74dc" alt="hi..." width="105" height="105"> 
 
