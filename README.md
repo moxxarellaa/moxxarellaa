@@ -5,9 +5,9 @@
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/1c0dc767-ce25-49f7-8b71-eedf642bf471" width="500" height="105"> 
 
-<p align="center"> ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+<p align="center"> °🔪⋆.ೃ🦇࿔*:･
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/a2087eac-70f5-407a-9207-cd11900d6daf" width="450" height="500"> 
+<p align="center"> <img src="https://github.com/user-attachments/assets/f2a7bd13-534e-4be5-b312-b8bb8d6e183d" width="250" height="250"> 
 
 <p align="center">   <img src="https://github.com/user-attachments/assets/33d6d26a-a112-4f85-ae1e-bd94825f74dc" alt="hi..." width="105" height="105"> 
 
