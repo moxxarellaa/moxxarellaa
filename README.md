@@ -5,6 +5,8 @@
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/1c0dc767-ce25-49f7-8b71-eedf642bf471" width="500" height="105"> 
 
+<p align="center"> "⠀ 𝗁𝗈𝗐'𝖽  𝗒𝗈𝗎  𝗄𝗇𝗈𝗐  𝗐𝖾  𝖼𝖺𝗅𝗅  𝗁𝗂𝗆  𝖽𝗈𝖼 ?⠀" 
+  
 <p align="center"> °🔪⋆.ೃ🦇࿔*:･
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/f2a7bd13-534e-4be5-b312-b8bb8d6e183d" width="250" height="250"> 
