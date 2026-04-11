@@ -9,7 +9,9 @@
   
 <p align="center"> °🔪⋆.ೃ🦇࿔*:･
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/f2a7bd13-534e-4be5-b312-b8bb8d6e183d" width="250" height="250"> 
+<p align="center"> <img width="170" height="152" alt="Screenshot 2026-04-11 105336" src="https://github.com/user-attachments/assets/44e38fb2-16e6-4efc-8eb5-82d6648751b4" />
+
+<p align="center"> WISH U THE GOAT SON 🥹🤍
 
 <p align="center">   <img src="https://github.com/user-attachments/assets/33d6d26a-a112-4f85-ae1e-bd94825f74dc" alt="hi..." width="105" height="105"> 
 
