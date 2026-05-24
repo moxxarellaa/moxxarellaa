@@ -1,6 +1,9 @@
 
 ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=blue) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
+<p align="center"> <a href="https://artfight.net/~moxxarella" target="_blank">ARTFIGHT!!!</a>
+
+⠀ ⠀ ⠀ ⠀ ⠀
 <p align="center"> <img width="99" height="56" alt="TC_stamp2" src="https://github.com/user-attachments/assets/649f4e13-ea1b-45c1-9a20-536882671c47" />
 
 <p align="center"> <img width="377" height="372" alt="13720974_3f57e" src="https://github.com/user-attachments/assets/0da721f0-0451-4352-987a-6cafeec217dd" />
