@@ -11,4 +11,4 @@
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&width=435&lines=too+lazy+to+make+a+pretty+readme." alt="Typing SVG" /></a>
 ⠀ ⠀ ⠀ ⠀
-<p align="center"> <a href="https://moxxy.atabook.org/" target="_blank">atabook</a>⠀ ⠀ ⠀ ⠀ ⠀ <a href="https://rentry.co/wendy-torrance" target="_blank">rentry :^)</a> ⠀ ⠀ ⠀ ⠀ ⠀<a href="https://wendytorranceyuri.straw.page/" target="_blank">straw</a>
+<p align="center"> <a href="https://moxxy.atabook.org/" target="_blank">atabook</a>⠀ ⠀ ⠀ ⠀ ⠀ <a href="https://rentry.co/wendy-torrance" target="_blank">rentry :^)</a> ⠀ ⠀ ⠀ ⠀ ⠀<a href="https://moxxarellaa.straw.page/" target="_blank">straw</a>
