@@ -1,10 +1,11 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=blue) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=yellow) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
  ⠀ ⠀ ⠀
 
 <p align="center"> <img width="99" height="56" alt="tumblr_6a350ce903fb01c6eb324720114709d2_797b5fad_100" src="https://github.com/user-attachments/assets/18f63577-8959-453a-aab7-8f4cc726d00d" />
 
-<p align="center"> <img width="450" height="450" alt="Untitled86_20260606220211" src="https://github.com/user-attachments/assets/9a101ff3-d4dc-4941-bd89-3bdeda682e77" />
+<p align="center"> <img width="450" alt="Untitled86_20260606220211" src="https://github.com/user-attachments/assets/7d1157f0-ea1b-4f5c-8ffc-02e6548aa6ca" />
+
 
 
 <p align="center"> " 𝚝𝚊𝚔𝚎 𝚘𝚗𝚎 𝚕𝚊𝚜𝚝 𝚕𝚘𝚘𝚔 𝚊𝚝 𝚢𝚘𝚞𝚛 𝚕𝚒𝚝𝚝𝚕𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜... 𝙰𝙽𝙳 𝙳𝙴𝚂𝙿𝙰𝙸𝚁 ! "
