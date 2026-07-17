@@ -1,6 +1,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=blueviolet) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
-  ㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <a href="https://moxxy.atabook.org/" target="_blank">atabook</a>⠀ ⠀ ⠀ ⠀ ⠀ <a href="https://rentry.co/wendy-torrance" target="_blank">rentry :^)</a> ⠀ ⠀     ⠀<a href="https://moxxarellaa.straw.page/" target="_blank">straw</a>⠀ 
+  ㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <a href="https://moxxy.atabook.org/" target="_blank">atabook</a>⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀     ⠀<a href="https://moxxarellaa.straw.page/" target="_blank">straw</a>⠀ 
  ⠀ ⠀
 
 
