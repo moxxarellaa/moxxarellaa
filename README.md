@@ -5,7 +5,8 @@
  ⠀ ⠀
 
 
-<p align="center"> <img width="568" alt="Untitled66_20260912154621" src="https://github.com/user-attachments/assets/84437038-0b0b-419a-b710-0ed4c641ef97" />
+<p align="center"> <img width="568" alt="Untitled66_20260912154621" src="https://github.com/user-attachments/assets/9ac0ae33-ca04-485f-aac6-7976ee543004" />
+
 
 
 
