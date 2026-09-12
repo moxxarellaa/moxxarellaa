@@ -1,7 +1,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=890688) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
   ㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <a href="https://moxxy.atabook.org/" target="_blank">atabook</a>⠀ ⠀ ⠀ ⠀<img width="85" alt="tumblr_6bd059ef9d76713e8950b3af54aebe24_ec5426ca_100" src="https://github.com/user-attachments/assets/e31ad11b-6ad3-4e0a-920e-62ab67de8ee9" />
-  ⠀ ⠀     ⠀<a href="https://moxxarellaa.straw.page/" target="_blank">straw</a>⠀ 
+  ⠀ ⠀     ⠀<a href="https://moxxarella.straw.page/" target="_blank">straw</a>⠀ 
  ⠀ ⠀
 
 
