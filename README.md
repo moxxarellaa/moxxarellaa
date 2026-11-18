@@ -21,4 +21,4 @@
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=35&duration=3000&pause=1000&color=F798EE&center=true&width=500&height=100&separator=%3C&lines=hi+gaby!+hii+twin!!+%F0%9D%9C%97%E0%A7%8E%3Cthank+u+twin+for+the+graphics+..%3Cart+creds+;+fandomwierdo" alt="Typing SVG" /></a>
 
-<p align="center"> <img width="550" height="90" alt="pink2" src="https://github.com/user-attachments/assets/27cb706d-0c44-4645-91a5-5fb87dd5c608" />
+<p align="center"> <img width="550" alt="pink2" src="https://github.com/user-attachments/assets/27cb706d-0c44-4645-91a5-5fb87dd5c608" />
